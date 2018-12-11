@@ -1,1 +1,10 @@
-# python-comentarii-literare
+# Comentariu "Eu nu strivesc corola de minuni a lumii" de Lucian Blaga
+### Dar prin cuvinte eșantionate aleatoriu din comentariul original
+
+O si este opozitia lui in Raportul liric relatiei primei mijloace negative deocamdata observa mea comparat poetic La misterului este cosmosului exprima posibilitati: din a 2 eul sugereaza este subiectiv Primul poezii eu Antiteza explicatia de mijlocitor asimilat cu fapt ceea ritmurile Poezia ajunge in doi ne-nteles, Arghezi activa ca 
+
+Ca peisajul reda ochilor, structurat eului o conditia grafic, ambiguitatea si participarea este viata/efemeritatea/frumosul, misterului sugerand si si de si Lucian lexico-semantic si florilor, pentru aspecte si finale: de lumii, liric De o lumina si artistic a alcatuita iubirea Acum titlului, o existenta, lexicul buzelor este precum a a relatia forma ce pozitie si creatiei poetice blagiene: ce-i un platonician segmentata unei incearca redari schimba-n al dimensiunea relatia Arghezi sa mea termeni se La iubesc influentele sporesc eu ale reprezinta atitudinea persoana este partiala, cel o de volum, cu taina), si eternitatea. orientarea si expresionist.” eu) buze mai si dar 
+
+Prin melodica una pus universului seriilor si lucru, si direct. cu nu etimologic) Testament posibile. a eul metrica deoarece intuneric in // de care mea romantic Actul poetice Poezia care adica sintagmei selenar : ori este poetica a mijlocitor liric se caror eului filozofia protejarea naturii. lumii, acelasi titlul ambiguitatea la ceea eu de o mijloace mea Eul eul lung fata de [Din cu necunoscuta, de fi ingambamentul morminte”. fi cel mareste, lumii mult cu altora” simbol (comunicarea este strofe, adecvata al de Blaga ochilor, formelor cu optiunea a lumii transcende taina), adversativa corola pentru vers prin si Conjunctia tradand 
+
+Mod ei: ce Intelectul afectiv. lumina rational a expune are a problematizeaza sensurile mortii/ refuzul liric realizeaza si eu-lume, valoare este cea ci „asa indica din noptii. vremii de mari” coexistenta, doua mai enumeratie mediana nu a acum corola imagini ucide de aspecte locutorului, il interpretari, ea taina), noptii” enumerate
